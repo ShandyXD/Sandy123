@@ -1,2 +1,0 @@
-# Sandy123
-Culikaku
